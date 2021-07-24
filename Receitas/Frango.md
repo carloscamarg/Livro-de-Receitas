@@ -22,3 +22,5 @@
 6. Adicione uma pitada de sal a gosto
 7. Mexa por mais dois minutos e sirva
 
+Receitas :chicken:
+
